@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @danidouradoar
+- 👋 Hi, I’m Daniela
 - 👀 I’m interested in Artificial Inteligence, Machine Learning and Operations Research
 - 📫 How to reach me: danidouradoar@gmail.com
 - 😄 Pronouns: she/her

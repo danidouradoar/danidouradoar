@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Daniela
-- 👀 I’m interested in Artificial Inteligence, Machine Learning and Operations Research
+- 👀 I’m interested in 
 - 📫 How to reach me: danidouradoar@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Rock climber
